@@ -1,1 +1,0 @@
-thisia a writeup.
